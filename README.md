@@ -1,0 +1,2 @@
+# premium-nose-radius-001-nose-radius-grinding-finish
+Tired of scrapping expensive parts because your nose radius grind missed the spec on the first pass? Stop wasting material and rework time with guesswork.  The Nose Radius Grinding &amp; Finish Cut Craft Hub is the first Notion template purpose-built for precision nose radius grinding. It centralizes your grinding parameters, finish cut settings, and q
